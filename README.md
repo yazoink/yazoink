@@ -1,2 +1,2 @@
-18 year old learning C and PHP, also artist and UNIX enthusiast.     
-See my website [here](https://yazo.ink) :D
+19 year old Linux enjoyer. 
+Look at my website [here](https://yazo.ink)
